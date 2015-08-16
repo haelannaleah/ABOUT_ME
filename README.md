@@ -6,3 +6,5 @@ Hi! I'm Annaleah. I'm studying electrical engineering as a junior at Harvard Uni
 I was a United States Presidential Scholar in 2013, and honored by the Alaska State Legislature in 2014.
 
 I'm still getting used to the world of science and people (Alaska's a little light on the technology and population density), and I must say, the world we live in today is pretty amazing. The more I learn about the way things work, the more astounding I find it that they exist.
+
+https://www.linkedin.com/pub/annaleah-ernst/b2/74b/561
